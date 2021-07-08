@@ -1,4 +1,4 @@
-                                                           ### Salome Velijanashvili
+### Salome Velijanashvili
 
 ### **Contact info:**
 
