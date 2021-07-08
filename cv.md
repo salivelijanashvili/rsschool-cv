@@ -15,17 +15,17 @@
 
 > **Tegeta Motors**  
 _Analyst_  
-2020 - 2021
+2020 - current
 
 
 > **TBC**  
-_Econimist_  
+_Economist_  
 2017 - 2019
     
 ### **Education:**    
 
 
-> **University of Georgia**  
+> **Georgian Technical University**  
 _Master of computer science_  
 2020 -current
 
